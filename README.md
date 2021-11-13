@@ -14,8 +14,4 @@ I then built two rails and two carriages for each side of the system and it work
 
 All made from 18mm baltic birch plywood.
 
-[andrebandarra.com](https://andrebandarra.com/)   
-
-[Youtube](https://www.youtube.com/channel/UCzYf1cmKwDMSiII9SSp6IJw) 
-
-[Patreon](https://www.patreon.com/bandarra) 
+[andrebandarra.com](https://andrebandarra.com/) --- [Youtube](https://www.youtube.com/channel/UCzYf1cmKwDMSiII9SSp6IJw) --- [Patreon](https://www.patreon.com/bandarra) 
